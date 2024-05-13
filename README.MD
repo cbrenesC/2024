@@ -11,4 +11,4 @@ nowadays, education has the power to make the world a better place, it guarantee
 As John Dewey said, "Education is not preparation for life; education is life itself." **The question to think about is**: 
 Do you think that the importance of learning can be overestimated? 
 
-Honestly, this is a discussion I really liked! I believe I express myself really well.
+- Honestly, this is a discussion I really liked! I believe I express myself really well.
