@@ -3,6 +3,7 @@
 
 **"He who opens a school door, closes a prison."**
       ― Victor Hugo
+
 Education helps us differentiate right from wrong choices; good ones will help us become useful to our society.
 Unfortunately, not everyone has access to a good education, which leads them to make bad choices and are punished by the law **but what if this term 
 "prison" is not the prison we all think it is?** I believe that **ignorance** is the 'real prison'. The quote shows how important education is to human beings, 
