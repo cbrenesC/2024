@@ -1,4 +1,4 @@
-# Email from Wed 5/15/2024 11:27 AM 
+# Email from Wed 5/15/2024 11:27 AM 7A
 ## @nicholas@eduww.net
 - Hello Camila,
 
@@ -10,4 +10,4 @@ I can only hope that you stay motivated in the future, as you did so far.
 
 I hope this helped a bit, these are all honest thoughts.
 
- Good luck in your ongoing academic journey, Nicholas
+ Good luck in your ongoing academic journey, Nicholas.
