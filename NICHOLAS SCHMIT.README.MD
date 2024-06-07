@@ -12,4 +12,4 @@ I hope this helped a bit, these are all honest thoughts.
 
  Good luck in your ongoing academic journey, Nicholas.
 
-![Email screenshot](Screenshot 2024-06-07 111325.png)
+![Email screenshot](https://github.com/cbrenesC/2024/blob/main/Screenshot%202024-06-07%20111325.png?raw=true)
